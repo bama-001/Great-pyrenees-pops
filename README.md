@@ -61,5 +61,3 @@ Looking for a loyal, fluffy companion? Our beautiful Great Pyrenees puppies are 
   <p>&copy; 2025 Great Pyrenees Pops. All rights reserved.</p>
 </footer>
 
-</body>
-</html><img src="https://tse1.mm.bing.net/th?id=OIP.nzjysYDB9vAssYU4yXCHqgHaHP&pid=Api" alt="Great Pyrenees Puppy" style="width:100%;max-width:600px;">
